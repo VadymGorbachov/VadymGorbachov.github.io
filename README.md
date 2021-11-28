@@ -1,1 +1,0 @@
-# VadymGorbachov.github.io
